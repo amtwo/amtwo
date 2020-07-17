@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi! I'm Andy, and I do SQL Server stuff. 👋
 
 | 🎨 Database Artist |   |
 | ------------- | ------------- |
