@@ -1,5 +1,18 @@
 ### Hi there 👋
 
+😄 Pronouns: he/him
+
+🎨 Database Artist
+
+🐶 Dog Dad
+
+👬 Queer
+
+🍜 Hangry
+
+-------
+[🌐 Blog](https://am2.co) |  [📫 Email](https://am2.co/contact-andy/) | [🐦 Twitter](https://twitter.com/amtwo)
+
 <!--
 **amtwo/amtwo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
