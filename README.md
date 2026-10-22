@@ -7,5 +7,5 @@
 | 🍜 Hangry     | ☕ Cafe Americano |
 
 
-[🌐 Blog](https://am2.co) | [🧑‍💼 LinkedIn](https://linkedin.com/in/amtwo)
+[🌐 Blog](https://am2.co) | [🧑‍💼 LinkedIn](https://linkedin.com/in/amtwo) | [☕ Support Andy](https://am2.co/support-andy/)
 
