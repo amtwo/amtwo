@@ -4,7 +4,7 @@
 | ------------- | ------------- |
 | 😄 he/him     |  👬 Queer |
 | 🐶 Dog Dad    | 🗺 Bostonian |
-| 🍜 Hangry     | ☕ Cafe Americano |
+| 🍜 Hangry     | ☕ [Cafe Americano](https://buymeacoffee.com/amtwo) |
 
 
 [🌐 Blog](https://am2.co) | [🧑‍💼 LinkedIn](https://linkedin.com/in/amtwo) | [☕ Send Love (or a coffee)](https://am2.co/send-love/)
